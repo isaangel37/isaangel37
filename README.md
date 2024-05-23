@@ -1,4 +1,4 @@
 ## oiii ##
  *★,°*:.☆:*.°★*
-**seja bem vindo ao meu perfil**
-![]([link](https://images.app.goo.gl/LhvwQ6RgYjVNKhyK7))
+**seja bem vindo a meu perfil**
+![](https://images.app.goo.gl/LhvwQ6RgYjVNKhyK7)
